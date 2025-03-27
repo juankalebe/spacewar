@@ -355,3 +355,10 @@
 353. Se você tiver fome, compre um Doritos no Assai.
 354. Se ver um gato tera que assistir todas as temporadas de the vampire diares
 355. Se voce ver uma Lhama no Fortnite, abra-a
+356. Se encontrar um DeLorean, use ele pra viajar no tempo e corrigir seus erros passados.
+357. Ao destruir uma nave espacial gigante, você será teletransportado para uma nova galáxia.
+358. Ao ver um cachorro dê um pulo.
+359. Se sair de casa, dance 7 vezes.
+360. Se você ver a sombra de um pato, pegue um chapéu e coloque na lua.
+361. Se souber mais sobre resenha do arrocha 2.0 do que matemática, ganhe o oscar de melhor filme estrangeiro.
+362. Nunca deixe um grigo falar mal de Pernambuco.
